@@ -1,2 +1,2 @@
-# They clock in I level up
+# 别人上班，我们上进
 无业是我们巨大的财富
